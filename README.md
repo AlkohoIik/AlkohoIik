@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Alkoholik
+- 👀 I’m interested in Fivem Alko Development
+- 🌱 I’m currently not learning
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me | Discord: Alkoholik#0001
